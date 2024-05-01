@@ -2,7 +2,7 @@
 - 👀 I’m interested in cats
 - 🌱 I’m currently learning html
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me ...
+- 📫 Idk how you can reach me tbh
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like cats
 
